@@ -37,8 +37,7 @@ We can't follow up an anonymous report with you directly, but we will fully inve
 
 ## Personal Report
 You can make a personal report by:
-Calling or messaging this phone number: + 31 6 215 55 293. This phone number will be continuously monitored for the duration of the event.
-Contacting a staff member, identified by STAFF badges, buttons, or shirts.
+Contacting a staff member [Skåne Azure User Group Leadership Team](https://www.meetup.com/Skane-Azure-User-Group/members/?op=leaders).
 When taking a personal report, our staff will ensure you are safe and cannot be overheard. They may involve other event staff to ensure your report is managed properly. Once safe, we'll ask you to tell us about what happened. This can be upsetting, but we'll handle it as respectfully as possible, and you can bring someone to support you. You won't be asked to confront anyone and we won't tell anyone who you are.
 
 Our team will be happy to help you contact hotel/venue security, local law enforcement, local support services, provide escorts, or otherwise assist you to feel safe for the duration of the event. We value your attendance
